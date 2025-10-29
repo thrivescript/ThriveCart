@@ -3,7 +3,9 @@
 Looking for a [ThriveCart coupon code](https://eduactivedeals.com/recommends/thrivecart/) to save $310 on this powerful cart platform?
 
 <a href="https://eduactivedeals.com/recommends/thrivecart/" target="_blank" rel="noopener">
-  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" alt="Get ThriveCart Discount" style="width:250px; height:auto; border:0;">
+  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" 
+       alt="Get ThriveCart Discount" 
+       style="width:700px; height:auto; border:0;">
 </a>
 
 
@@ -12,7 +14,9 @@ Looking for a [ThriveCart coupon code](https://eduactivedeals.com/recommends/thr
 Grab 79% off the ThriveCart Standard Plan with a one-time payment that unlocks unlimited products, funnels, and earning potential, no coupon code needed and no monthly fees, letting you save over $1,200 a year compared to other platforms.
 
 <a href="https://eduactivedeals.com/recommends/thrivecart/" target="_blank" rel="noopener">
-  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" alt="Get ThriveCart Discount" style="width:250px; height:auto; border:0;">
+  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" 
+       alt="Get ThriveCart Discount" 
+       style="width:700px; height:auto; border:0;">
 </a>
 
 
@@ -21,7 +25,9 @@ Grab 79% off the ThriveCart Standard Plan with a one-time payment that unlocks u
 Get the ThriveCart Pro Plan Lifetime Deal for just $520 and enjoy every Standard feature plus affiliate management tools, subscription savers, advanced automations, a customer hub, and access to the Learn+ course platform, all built to grow your recurring sales and streamline your business without any monthly fees.
 
 <a href="https://eduactivedeals.com/recommends/thrivecart/" target="_blank" rel="noopener">
-  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" alt="Get ThriveCart Discount" style="width:250px; height:auto; border:0;">
+  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" 
+       alt="Get ThriveCart Discount" 
+       style="width:700px; height:auto; border:0;">
 </a>
 
 
@@ -31,7 +37,9 @@ Get the ThriveCart Pro Plan Lifetime Deal for just $520 and enjoy every Standard
 Score $200 off with ThriveCart Black Friday deals and coupons, as the company often runs limited-time flash sales, sometimes up to 30% off, shared through emails and partner promos, so joining their waitlist and checking in late November can secure the biggest savings.
 
 <a href="https://eduactivedeals.com/recommends/thrivecart/" target="_blank" rel="noopener">
-  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" alt="Get ThriveCart Discount" style="width:250px; height:auto; border:0;">
+  <img src="http://eduactivedeals.com/wp-content/uploads/2025/10/discount-button.png" 
+       alt="Get ThriveCart Discount" 
+       style="width:700px; height:auto; border:0;">
 </a>
 
 
